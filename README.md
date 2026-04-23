@@ -1,0 +1,1 @@
+Experienced in Credit Risk analytics, data integration, and workflow optimization, with a strong background in leveraging tools like SQL Server, Power BI, and Alteryx to enhance operational efficiency and ensure data integrity. Skilled in cross-functional collaboration, project management, and technical documentation to drive strategic decision-making. 
